@@ -8,4 +8,3 @@
 ### 𐂯 [Strawpage](https://kill-me-fast.straw.page/) 𐂯
 ### 𐂯 [Carrd](https://lifestarts.carrd.co/) 𐂯
 ### 𐂯 [Guestbook](https://threedaysgrace.atabook.org/) 𐂯
-### 𐂯 [Color My Tree](https://colormytree.me/2025/01JECKE1G0EE42QNZZC78Z7A26) 𐂯
